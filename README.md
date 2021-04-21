@@ -1,7 +1,5 @@
 ## 欢迎来到科技猫的博客空间
 
-<meta name="google-site-verification" content="VhC6Wju6RumL4js-cRBMemb0lfrasJiF_ezsTslQavs" />
-
 科技猫专注分享视频下载教程及实用干货资源
 
 1. [Instagram视频下载教程](https://www.4kvideodownloader.com/tutorial/download-instagram-videos/)
